@@ -1,1 +1,0 @@
-# MinzD7gitmoi
